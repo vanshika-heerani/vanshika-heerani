@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning ** github**
 
-- 💬 Ask me about ** web developing **
+- 💬 Ask me about ** Web Developing **
 
 - ⚡ Fun fact **I always laugh in trouble condition😅**
 
